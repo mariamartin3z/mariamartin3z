@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me, you ca't
+- 📫 How to reach me, you cannot
 - 😄 Pronouns: USA
 - ⚡ Fun fact: NO
 
